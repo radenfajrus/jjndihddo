@@ -3,3 +3,4 @@
 Yeaey!!
  
 hah? 
+kurang banyak jrus
